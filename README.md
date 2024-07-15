@@ -3,8 +3,6 @@
 *Do you know me?<br />
 YEAH!! You Don't know me!! HaHa!!*
 
-<br />
-
 ### About me 💬
 
 I have achieved nothing at the moment.<br />
